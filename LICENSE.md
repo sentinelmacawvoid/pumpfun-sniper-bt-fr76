@@ -1,4 +1,4 @@
-# 
+# elite bot de arbitragem MEV plugins é o melhor bot de arbitragem MEV plugins com trailing-stop e back-running. Seguro, confiável e otimizado para estratégias MEV, sniper e
 
 
 
